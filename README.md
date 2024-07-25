@@ -1,7 +1,7 @@
 
 主要是看到https://github.com/ShiArthur03/ShiArthur03 发现GitHub的一个新用法
 
-## 原网址 https://www.bilibili.com/video/BV1CF81evExh/ 
+## 原网址 B站：https://www.bilibili.com/video/BV1CF81evExh/ 微博：https://weibo.com/n/%E4%BA%BA%E5%A4%A7%E7%BB%B4%E6%B3%89%E5%8D%9A%E5%A3%AB%E7%94%9F%E7%8E%8Bd
 **视频简介：** 我是王迪，是中国人民大学文学院在读博士生。我实名举报我的导师——人大文学院原党委书记兼副院长、博导 王贵元教授 于2022年5月21日性骚扰且强制猥亵我，并要求与我发生性关系。
 
 因我拒绝，他在其后两年多时间里对我进行打击报复，并威胁我不能毕业。两年来，王教授步步进逼，委曲难求周全。此刻，我忍无可忍，退无可退，因此发声。我要求依法依规惩治王贵元，并更换指导老师。
